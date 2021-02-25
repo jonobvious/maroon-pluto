@@ -1,5 +1,5 @@
 ---
-title: OLEME LAUDADEGA KOLINUD VÄÄNA-JÕESUU RANDA
+title: Oleme laudadega kolinud Vääna-Jõesuu randa
 subtitle: >-
   Apparently, Japan is covered in magical and irresistibly cute animal
   sanctuaries.
